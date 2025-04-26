@@ -61,3 +61,9 @@ Bachelor i Medievidenskab (2016–2019)
 
 **Aalborg Universitet**  
 Bachelor i Art & Technology (2 semestre, 2015–2016)
+
+<style>
+  h1:first-of-type { 
+    display: none;
+  }
+</style>

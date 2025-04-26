@@ -5,6 +5,7 @@
 3. Faster
 4. Stronger
 
+det her er en hjemmeside
 
 
 <!-- Skjuler brugernavn i toppen af siden -->

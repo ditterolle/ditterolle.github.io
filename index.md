@@ -1,7 +1,7 @@
 # Ditte Rolle
 
 📍 Odense C  
-📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📸 [@ditterolle](https://instagram.com/ditterolle)
+📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📸 [@ditterolle]([https://www.linkedin.com/in/ditterolle])
 
 ---
 

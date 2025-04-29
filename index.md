@@ -1,25 +1,27 @@
 # Ditte Rolle
 
-📍 Odense C  
-📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📸 [@ditterolle]([https://www.linkedin.com/in/ditterolle])
+📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📍 Odense C | LinkedIn [@ditterolle](https://www.linkedin.com/in/ditterolle)
 
 ---
 
-## Om Mig
+## Om mig
 
-Ambitiøs og struktureret med stærke formidlingsevner, flair for IT og stor erfaring med kommunikation, borgerbetjening, planlægning og digitalt arbejde.  
-Elsker kreative projekter, quizzer og kaffe med venner.
+Jeg er et imødekommende, ambitiøst menneske, der er struktureret, har stærke formidlingsevner og flair for IT, og jeg har arbejdet med kommunikation, borgerbetjening, planlægning og digitalt arbejde.  
+Jeg er kreativ, og har altid gang i et eller andet projekt, og jeg elsker at drikke kaffe på Den Smagløse Café i Odense med venner, eller løbe en tur rundt i Munkemose. 
 
 ---
 
-## Kompetencer
+## Mine kompetencer
 
 - Kommunikation og formidling (skriftligt og visuelt)
+  - Fundraising, nyhedsbreve og indhold til sociale medier
 - Projektstyring, planlægning og koordinering
-- IT-flair: Office-pakken, WordPress, Canva, Mailchimp, Facebook Business
-- Sociale medier: Facebook, Instagram, TikTok
 - Billed- og videoproduktion/redigering
 - Selvstændig, samarbejdsorienteret og detaljeorienteret
+
+## Programmer
+- IT: Office-pakken, WordPress, Canva, Mailchimp, Facebook Business
+- Sociale medier: Facebook, Instagram, TikTok
 
 ---
 

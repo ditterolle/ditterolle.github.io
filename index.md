@@ -2,6 +2,15 @@
 
 📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📍 Odense C | LinkedIn [@ditterolle](https://www.linkedin.com/in/ditterolle)
 
+
+Hej! 
+Jeg leder efter nyt job! 
+
+
+
+
+
+
 ---
 
 ## Om mig

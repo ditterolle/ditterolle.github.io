@@ -6,6 +6,13 @@
 Hej! 
 Jeg leder efter nyt job! 
 
+Hvad kan jeg tilbyde? 
+
+En hel masse forskelligt - jeg har nemlig lavet ret mange forskellige ting, og jeg er altid klar på at lære nyt. 
+Men helt konkret så har jeg arbejdet med kommunikation og formidling gennem de sidste mange år, og jeg har arbejet med events og festivaler siden 2017. 
+Nogle af opgaverne har været helt regulære opslag på sociale medier, nyhedsbreve og opdatering af hjemmeside, hvor jeg særligt hos Vejle Bibliotekerne fik erfaring med den direkte kommunikation til borgere, når de spurgte om hjælp af forskellig art. Det 
+
+
 
 
 

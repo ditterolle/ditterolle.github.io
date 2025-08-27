@@ -1,19 +1,16 @@
-# Ditte Rolle
-
-📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📍 Odense C | LinkedIn [@ditterolle](https://www.linkedin.com/in/ditterolle)
+# Ditte Rolle # 📧 [ditterolle@gmail.com](mailto:ditterolle@gmail.com) | 📱 +45 26 22 55 08 | 📍 Odense C | LinkedIn [@ditterolle](https://www.linkedin.com/in/ditterolle)
 
 
 Hej! 
-Jeg leder efter nyt job! 
+Jeg leder efter job på Fyn!
 
 Hvad kan jeg tilbyde? 
 
-En hel masse forskelligt - jeg har nemlig lavet ret mange forskellige ting, og jeg er altid klar på at lære nyt. 
-Men helt konkret så har jeg arbejdet med kommunikation og formidling gennem de sidste mange år, og jeg har arbejet med events og festivaler siden 2017. 
-Nogle af opgaverne har været helt regulære opslag på sociale medier, nyhedsbreve og opdatering af hjemmeside, hvor jeg særligt hos Vejle Bibliotekerne fik erfaring med den direkte kommunikation til borgere, når de spurgte om hjælp af forskellig art. Det 
+En hel masse forskelligt - jeg har nemlig lavet ret mange forskellige ting, og jeg er altid klar på at lære nyt! 
+Helt konkret så har jeg arbejdet med kommunikation og formidling gennem de sidste mange år, og jeg har arbejet med events og festivaler siden 2017. 
+Nogle af opgaverne har været helt regulære opslag på sociale medier, nyhedsbreve og opdatering af hjemmeside, men jeg har også arbejdet med formidling, hvor jeg særligt hos Vejle Bibliotekerne fik erfaring med den direkte kommunikation til borgere. Det var en alsidig opgave, hvor jeg skulle formidle alt fra instruktioner til littraturanbefalinger og informationer om bibliotekerne og dets arrangementer. 
 
-
-
+Jeg er en imødekommende person, der altid er klar på at hjælpe, og som bare gerne vil rigtigt i gang med min karrierer, så jeg kan udvikle mig og mine kompetencer! 
 
 
 
